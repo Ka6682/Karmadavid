@@ -15,8 +15,8 @@ python2 karma.pyc
 Username-Inbox me
 Paswd- inbox me
 Whatsapp- +2348110044418
-
-#Attribute
+😎😎😎😎😎😎😎😎😎😎😎😎😎
+Attribute
 FILE CRACK
 COOKIE LOGIN
 TOKEN LOGIN
